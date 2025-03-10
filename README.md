@@ -1,2 +1,2 @@
-# Sprunglesonthehub.github.io
+# linuxsgamer80.github.io
 Website
